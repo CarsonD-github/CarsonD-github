@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @CarsonD-github
-- 👀 I’m interested in KIPR/botball
+- 👀 I’m interested in KIPR/botball and Minecraft Java and bedrock.
 - 🌱 I’m currently learning 6th grade robotics
 - 📫 You can reach me on Discord. CarsonDay#2173
 - 📹 Subscribe to me on YouTube! FireIQ - https://www.youtube.com/channel/UChgPjuoGp4MjxLLIYg3KwQw
